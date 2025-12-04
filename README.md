@@ -6,6 +6,6 @@ _I am an aspiring cloud engineer.I am passionate about Linux , automation, and b
 
 ### Connect with me
 
-**LinkedIn:** [Benjamin Botchway](https//:www.linkedin.com/in/benjamin-botchway)
+**LinkedIn:** [Benjamin Botchway](https://www.linkedin.com/in/benjamin-botchway)
 
 **Instagram:** [Papayaw](https//:www.instagram.com/burn_jamin?igsh=ZW8xcGFzaGN1YXFp&ut-m_source=qr)
